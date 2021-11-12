@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @BrodiesMods
 - 👀 I’m interested in graphic desgin and computer science
 - 🌱 I’m currently learning computer science
-- 📫 How to reach me Opuz-Tech#0001 (discord), or email brodiemods@graphic-designer.com
+- 📫 How to reach me? Opuz-Tech#0001 (discord), or email brodiemods@graphic-designer.com
